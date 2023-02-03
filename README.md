@@ -6,4 +6,6 @@ Salut ça va tu vas bien on est là tu connais
 
     tu connais One Piece ???
 
-    Nan je connais pas du tout c'est quoi ? Un manga ? 
+    Nan je connais pas du tout c'est quoi ? Un manga ?
+
+         Oui le meilleur mais personne est prêt pour ce débat
