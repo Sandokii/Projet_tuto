@@ -11,3 +11,5 @@ Salut ça va tu vas bien on est là tu connais
          Oui le meilleur mais personne est prêt pour ce débat
 
             J'ai jamais lu ni regardé de manga ! Faut que je teste !
+
+                Bienvenue dans l'aventure
